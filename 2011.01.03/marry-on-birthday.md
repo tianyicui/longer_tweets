@@ -1,0 +1,1 @@
+I just realized, if you get married on your birthday, you can avoid a common fallacy of failed marriage (at least on TV): you'll never forget your anniversaries and remember to arrange the dinner and everything!
